@@ -26,3 +26,10 @@
    <img width="120" height="80" src="https://64.media.tumblr.com/120b812cbd7120b9a3099257b5e80324/7f879fb7a6e85ba3-e3/s100x200/d44eba377737dbf1eaeefd89c61a57cbc57ce009.gifv">
    <img width="120" height="80" src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/a5c80f9f-634b-4c6e-993a-900d0424df72/dfd04d1-c22de2cf-be4f-499f-9b13-2bac14443b6b.png/v1/fill/w_100,h_50,q_80,strp/_f2u__evil_autism_flag_stamp_by_zombugz_dfd04d1-fullview.jpg?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7ImhlaWdodCI6Ijw9NTAiLCJwYXRoIjoiXC9mXC9hNWM4MGY5Zi02MzRiLTRjNmUtOTkzYS05MDBkMDQyNGRmNzJcL2RmZDA0ZDEtYzIyZGUyY2YtYmU0Zi00OTlmLTliMTMtMmJhYzE0NDQzYjZiLnBuZyIsIndpZHRoIjoiPD0xMDAifV1dLCJhdWQiOlsidXJuOnNlcnZpY2U6aW1hZ2Uub3BlcmF0aW9ucyJdfQ.mRIKynK5VNiMFFY-35oUrcFvj9uec0PHZOF2IoxW8AU">
    <img width="120" height="80" src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/ecdcebaf-fcff-41a0-9f3e-e71cfb6c6a1f/d2ffr4j-d9b6a3ea-d01e-40b0-a69f-b4b0a552b9a3.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2VjZGNlYmFmLWZjZmYtNDFhMC05ZjNlLWU3MWNmYjZjNmExZlwvZDJmZnI0ai1kOWI2YTNlYS1kMDFlLTQwYjAtYTY5Zi1iNGIwYTU1MmI5YTMucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.S--8TIeE2XgQWqlrFLaMlWX0UGLDqAJA6XxI5JSLh_o">
+ </p>
+ 
+#### <p align="center"> PLEASE go check out my other links if youre looking for actual info </p>
+###### <p align="center"> and maybe leave me a nice note on strawpage pretty pls </p>
+<p align="center">
+  <img width="60" height="30" src="https://gifcity.carrd.co/assets/images/gallery77/9090fe5e.gif?v=d55ea43d">
+</p>
